@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Zalma613
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning in BMSZC //Zipernowsky//
+- 📫 How to reach me Discord: Zalma#7818
